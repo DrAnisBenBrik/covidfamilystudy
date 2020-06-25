@@ -1,3 +1,4 @@
+COVID 19 FAMILY LIFE STUDY
 www.covidfamilystudy.org
 
 The COVID-19 Family Life Study is a research study that explores the effects of the coronavirus pandemic on family life across cultures.The study aims to:
